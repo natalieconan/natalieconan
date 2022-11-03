@@ -13,5 +13,7 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...!
-[Uploading 2022105ns4*86.jpg…]()
+
+![2022105ns4*86](https://user-images.githubusercontent.com/85930254/199697898-211ec444-73d9-45c1-a468-936578467c6f.jpg)
+
  
